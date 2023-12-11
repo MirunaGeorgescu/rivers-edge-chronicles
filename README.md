@@ -1,1 +1,1 @@
-# rivers-edge-chronicles
+# ✨ River's Edge Chronicles
